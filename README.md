@@ -1,1 +1,2 @@
 # Exercici-Fork-Branch
+#Fokinity?
