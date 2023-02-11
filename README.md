@@ -6,4 +6,4 @@ sussy baka baka sus
 mogus supa hot fire
 magamusus
 
-amoogususussusus sus
+amooguusussuACHINGA.-.sus sus
