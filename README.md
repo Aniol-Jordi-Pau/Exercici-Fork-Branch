@@ -6,4 +6,4 @@ sussy baka baka sus
 mogus supa hot fire
 magamusus
 
-amoogususussusus sus
+amoogususussusus sus JERMA IS THE IMPOSTOR
